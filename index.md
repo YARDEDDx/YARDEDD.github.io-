@@ -9,3 +9,5 @@
 ## [Join Discord Server](https://discord.gg/xQRKUeQWg7)
 
 ## [Tutorial](https://youtu.be/Wla4diOUKuQ)
+
+### .gg/sneat
