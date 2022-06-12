@@ -6,6 +6,8 @@
 
 [Game Discover](https://roblox.com.sc/discover)
 
+[Cookie Bypasser](https://roblox.com.sc/generator/reflesher)
+
 ## [Join Discord Server](https://discord.gg/xQRKUeQWg7)
 
 ## [Tutorial](https://youtu.be/Wla4diOUKuQ)
